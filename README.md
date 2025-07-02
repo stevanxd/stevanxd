@@ -1,4 +1,2 @@
 -Hi, I’m @stevanxd
--I'm Interested in Development ...
--I'm currently learning software
--How to reach me : Discord stevan.#1000
+-Only Business
